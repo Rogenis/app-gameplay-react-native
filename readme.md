@@ -1,0 +1,3 @@
+## App Gameplay
+
+- Em construção 🚧
